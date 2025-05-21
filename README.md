@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yeshiwas1
+- 👋 Hi, I’m @yeshiwas awoke
 - 👀 I’m interested in to join your vacant position
 - 🌱 I’m currently learning to new ideas
 - 💞️ I’m looking to collaborate on the stakeholders
